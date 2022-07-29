@@ -7,7 +7,7 @@ Download the HBO Max on your device to experience excellent sound and video qual
 
 ## Where to Find HBO MAX Activation Code?
 
-HBO MAx lets you watch movies, exclusive tv shows and other videos at one place but it only works when it is activated. It is necessary for the activation purpose that you need to **enter HBO MAX activation code** which is a **6 digit in alphanumeric code*. The process to get the HBO MAX activation code is to first open your web browser and go to **[hbomax.com/tvsignin](https://github.com/tvsignin/hbomax.com.tvsignin.hbomax.com)** and your hbo max account by registered email ID. Then check your email box properly and you will find the HBO MAX Activation Code seems like AS17J.
+HBO MAx lets you watch movies, exclusive tv shows and other videos at one place but it only works when it is activated. It is necessary for the activation purpose that you need to **enter HBO MAX activation code** which is a **6 digit in alphanumeric code**. The process to get the HBO MAX activation code is to first open your web browser and go to **[hbomax.com/tvsignin](https://github.com/tvsignin/hbomax.com.tvsignin.hbomax.com)** and your hbo max account by registered email ID. Then check your email box properly and you will find the HBO MAX Activation Code seems like AS17J.
 
 
 ## How to Create Profile for HBO MAX?
